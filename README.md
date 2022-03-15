@@ -1,0 +1,2 @@
+# estaticos-exercicios
+ 
